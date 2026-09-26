@@ -1,0 +1,2 @@
+# skala
+duh nih orang
